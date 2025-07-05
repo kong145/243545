@@ -43,4 +43,4 @@ IPZZ-158：新人偶像系女优首次下海
 每个番号均配有女优资料、影片介绍、分类标签，方便你精准筛选想看的类型。
 标签系统完善：通过番号/女优名/类型快速定位你想看的内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/kong145/243545 ）</span>
